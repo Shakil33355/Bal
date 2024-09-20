@@ -70,7 +70,7 @@ DEVELOPER :🌺🌺🌺🌺★𝕊𝕂 𝕊ℍ𝔸𝕂𝕀𝕃(𝕋𝕆𝕄)★�
 
 🟣Facebook Account Link: 
 
-https://www.facebook.com/c.e.o.tom.your.next.pappa.xan
+https://www.facebook.com/GOLAPI.NUNUR.ODHIKARI.TOM.YOUR.NEXT.VATAR
 
 🔵WHATSAPP NUMBER: wa.me/+8801918546009🌺
 
